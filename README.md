@@ -1,8 +1,8 @@
 # 100-New-Tiktok-Follower-Generator-Per-Hour
 
-Click Here to Generate Follower>>> https://shorturl.at/UtelT
+Click Here to Generate Follower>>> https://shorturl.at/8ZGGw
 
-Click Here to Generate Follower>>> https://shorturl.at/UtelT
+Click Here to Generate Follower>>> https://shorturl.at/8ZGGw
 
 TikTok Follower Generators: Can They Really Help You Gain 1,000 Followers Per Hour?
 
